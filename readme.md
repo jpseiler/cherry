@@ -1,10 +1,10 @@
 #readme
 
 ...
-Her eyes like angels watch them still
-  Her brows like bended bows do stand
-Threat'ning with piercing frowns to kill
-  All tha attempt with eye or hand
-    Those sacred cherries to come nigh,
-	Till "Cherry-ripe" themselves do cry.
+Those cherries fairly do enclose
+   Of orient pearl a double row,
+Which when her lovely laughter shows,
+   They look like rose-buds filled with snow;
+      Yet them no peer nor prince can buy
+      Till “Cherry-ripe” themselves do cry.
 --Thomas Campion
